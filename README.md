@@ -43,3 +43,25 @@ prac 8.5
 
 
 https://www.tinkercad.com/things/ie4WcMfa6Cb-prac85?sharecode=Ut5y8FnIMaWZYYucn2hLD59dQ8dC37czTK7P2LbMzso
+
+
+prac 9  
+
+
+
+https://www.tinkercad.com/things/8354QlAsSWw-prac9?sharecode=QuZ2Wp7aQVXsefXS9FQfTPtPS77VAIo4x1Ho-JMx9x8
+
+
+prac 10
+
+
+
+https://www.tinkercad.com/things/fj1dK1MbUKE-practical-10?sharecode=l4uf5Ci1LTj2Hv6mBYydYsZoVJOTSM_qTTgNZqbOEqc
+
+
+
+value added prac 3
+
+
+
+https://www.tinkercad.com/things/77KHVQd6ft6-value-added-3?sharecode=scLv8KHeesX26xdowbIpLcvBKi-Zrqs05o_eaTdKt0U
